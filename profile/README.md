@@ -1,5 +1,5 @@
 # Ropomoda.com 🛒
 
-good feeling with good to shop
+good feeling with good shopping
 
-[Ropomoda](https://www.ropomoda.com/)
+[Ropomoda](https://ropomoda.com/)
